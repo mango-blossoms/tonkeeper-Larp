@@ -4,6 +4,8 @@ https://t.me/larpforfree https://t.me/eighty
 i just fucked my fusi up counting too much fusi's up we got beams on this fusi u dont gotta pray for us 🥺🥺🥺
 
 
+# RUN SCRIPT TWICE THE FIRST TIME YOU USE IT!!!!!
+
 # How tew use 
 1. open toneeper
 2. click control shift I
